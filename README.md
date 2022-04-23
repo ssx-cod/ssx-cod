@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @ssx-cod
 - 👀 I’m interested in many things
 - 🌱 I’m currently learning drawing
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- May be you can find something intersting photos in my QQ.Because I'm a music game player👀
