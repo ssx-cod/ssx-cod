@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ssx-cod
+- 👋 Hi, I’m @ssx_cod
 - 👀 I’m interested in many things
 - 🌱 I’m currently learning drawing
 - May be you can find something intersting photos in my QQ.Because I'm a music game player👀
